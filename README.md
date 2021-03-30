@@ -1,1 +1,1 @@
-# majubs
+# majubs jumanji
